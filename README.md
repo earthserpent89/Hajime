@@ -1,8 +1,5 @@
 # Hajime
-My second startpage
+Shamelessly stolen from that dude on /wg/
+Sorry :^)
 http://i.imgur.com/rIly5QJ.png
-
-Please try it out.
-
-
-Feel free to change to your own waifu of course ;)
+Only added a waifu basicaly.
